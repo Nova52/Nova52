@@ -1,1 +1,1 @@
-Nova is my name.
+My name is Nova and I love chocoloate.
